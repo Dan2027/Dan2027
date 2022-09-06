@@ -27,3 +27,4 @@ Seasoning
 - 5、Remove the fruit slices from the baking tray and brush the chicken wings with a layer of oil
 - 6、Return to the oven at 200 degrees for 10 minutes.
 - END、Remove the chicken wings from the oven and garnish with coriander and white sesame seeds. perfect
+
