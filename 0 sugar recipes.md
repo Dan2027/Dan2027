@@ -15,10 +15,10 @@ Ingredients
 - 1 tsp, sugar
     
 Seasoning
-- 2 Tbsp. Abalone Juice Oyster Sauce
+- 2 Tbsp. [Abalone Juice Oyster Sauce](https://saucegrandmaster.com)
 - 2 Tbsp. Sauce Grandmaster Garlic Chilli Sauce
 - 1 tsp. Simple Secret Soy Sauce
-#### [Detailed approach](https://saucegrandmaster.com/2022/05/30/orange-apple-chicken-wing-root/)
+#### [Detailed approach](https://saucegrandmaster.com/orange-apple-chicken-wing-root/)
 
 - 1、In a large bowl, combine the Sauce Grandmaster Garlic Chilli Sauce, Simple Secret Soy Sauce, Abalone Juice Oyster Sauce, minced garlic, chili powder and cumin powder. Mix until well combined.
 - 2、Add in the chicken wings. Massage the marinade into the chicken wings and allow them to marinate for 30 mins.
